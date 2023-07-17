@@ -1,6 +1,5 @@
 ---
-Unlocking Productivity and Consistency: Strategies for Success
-In this blog, we will explore effective techniques that can help you unlock your productivity potential and establish a consistent routine.
+Unlocking Productivity and Consistency: Strategies for Success In this blog, we will explore effective techniques that can help you unlock your productivity potential and establish a consistent routine.
 ---
 In a world filled with numerous distractions and competing demands, staying productive and consistent can be a significant challenge. However, with the right strategies and mindset, it is possible to increase productivity and maintain consistency in various areas of life.
 
